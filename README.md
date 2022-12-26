@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @casualmind
-- 👀 I’m interested in a lot of new stuff~
-- 🌱 I’m currently learning Business and Management
+- 👀 I'm interested to know about a lot of new things
+- 🌱 Currently, I am studying Business and Management
 - 📫 How to reach me through an email ffarizp@gmail.com
 
 <!---
